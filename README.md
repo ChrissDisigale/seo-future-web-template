@@ -1,0 +1,1 @@
+# seo-future-web-template
